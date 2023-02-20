@@ -2,6 +2,7 @@
 
 
 Contact: tito@hp-schools.org
+
 Phone Number: +1(650)-308-4675
 
 I am Spanish teacher at Hyde Park High School attempting to teach in a innovative and dynamic way.
